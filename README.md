@@ -15,7 +15,7 @@ In such an establishment workers always have a fallback position in any employme
 
 Note I'm not calling for a right under man but one under heaven. Still tho I am asking my fellow human beings, regardless of their metaphysical views, to recognize this new universal human right as preexisting to government while adding this part as another piece of the basis for which governments are established —— the defense of the rights of all people being the proper, and only legitimate cause, for which they are built —— in order to protect.
 
-Having invoked Locke's [Social Contract](https://github.com/kuttaineh/unknotted#how-shall-the-social-contract-be-defined) theory with perhaps a bit of Hobbes & Rousseau I'm having to note that this is out of the American, not French, model of revolutionary thinking.
+Having invoked Locke's [Social Contract](https://github.com/kuttaineh/unknotted#how-shall-the-social-contract-be-defined) theory along with Henry George and perhaps a bit of Hobbes & Rousseau I'm having to note that this is out of the American, not French, model of revolutionary thinking.
 
 Unencumbered small landholding, or the value thereof if you want to get technical, is the right defined for the purpose not to establish a world based upon the works of Murray Rothbard ——— for that would result in a rentier's paradise ——— but rather Thom Jefferson's idea of the small landholder being the most precious part of the state and the greatest defense of liberty. And in this scenario of [Ward Republics](https://web.archive.org/web/20230331120509/https://constitution.org/1-Activism/reform/us/ward_republic.html) therein is practiced universal suffrage along with universal title.
 
