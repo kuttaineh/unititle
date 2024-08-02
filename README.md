@@ -2,10 +2,10 @@
 the basis of isocracy
 
 ## Motivation
-So that all girls may become ladies and all boys gentlemen let us establish a steady order wherein universal title to the value of the earth is a standard for all conceived human beings; let no corporation or any other legal fiction claim title to any unimproved portion of earth. How would that look? [Here’s a gist](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) of that vision.
+Let’s make our societies civil again. In proposal, in order to witness this end, we divide the value of the earth equally across all conceived living beings.
 
 ## Predistribution as Right
-To arrive at [the figures derived](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) I took the whole landmass of the earth and divided by the three example population sizes. This scenario eliminates the homelessness coming out of a lack of an explicit title. Note the right, as expressed, is Predistributionist in form.
+To arrive at [the figures derived](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) the whole landmass of the earth and divided by the three example population sizes. This scenario eliminates the homelessness coming out of a lack of an explicit title. Note the right, as expressed, is Predistributionist in form.
 
 ![Three acres and a cow](Three_acres_and_a_cow.jpeg)
 
