@@ -11,7 +11,7 @@ Let’s make our societies civil again. In proposal, in order to witness this en
 
 Drawing by Chesterton before 1936. For essays in this area, see [The Hound of Distributism](https://www.chesterton.org/store/product/hound-of-distributism/).
 
-In such an establishment workers always have a fallback position in any employment negotiation because if an employer isn't willing or is otherwise unable to make a sufficient return then the person could always claim their share of the earth in physical form and take up vertical farming. Also, nothing would prevent the same from keeping both a garden and working jobs if this were their choice. How to live is left to the individual to determine.
+With such an establishment people always have a fallback position in any employment negotiation because, if an employer isn't willing or is otherwise unable to make a sufficient return for labor then the person could always claim their share of the earth in physical form and take up vertical farming. Nothing would prevent the same from keeping both a garden and working jobs if this were their choice. How to live is left to the individual to determine.
 
 Note I'm not calling for a right under man but one under heaven. Still tho I am asking my fellow human beings, regardless of their metaphysical views, to recognize this new universal human right as preexisting to government while adding this part as another piece of the basis for which governments are established —— the defense of the rights of all people being the proper, and only legitimate cause, for which they are built —— in order to protect.
 
