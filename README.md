@@ -13,7 +13,7 @@ Drawing by Chesterton before 1936. For essays in this area, see [The Hound of Di
 
 With such an establishment people always have a fallback position in any employment negotiation because, if an employer isn't willing or is otherwise unable to make a sufficient return for labor then the person could always claim their share of the earth in physical form and take up vertical farming. Nothing would prevent the same from keeping both a garden and working jobs if this were their choice. How to live is left to the individual to determine.
 
-Note I'm not calling for a right under man but one under heaven. Still tho I am asking my fellow human beings, regardless of their metaphysical views, to recognize this new universal human right as preexisting to government while adding this part as another piece of the basis for which governments are established —— the defense of the rights of all people being the proper, and only legitimate cause, for which they are built —— in order to protect.
+This new universal human right, preexisting to government, becomes the basis for the justification of the defense of government.
 
 Having invoked Locke's [Social Contract](https://github.com/kuttaineh/unknotted#how-shall-the-social-contract-be-defined) theory along with Henry George and perhaps a bit of Hobbes & Rousseau I'm having to note that this is out of the American, not French, model of revolutionary thinking.
 
