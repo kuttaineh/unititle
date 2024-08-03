@@ -1,4 +1,4 @@
-# Universal Title
+# Justice
 the basis of isocracy
 
 ## Let's make our societies civil again. 
