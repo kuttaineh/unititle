@@ -19,4 +19,4 @@ This [Social Contract](https://github.com/kuttaineh/unknotted#how-shall-the-soci
 
 Unencumbered small landholding, more specifically the value thereof, is the right for the purpose of abolishing inquity without placing limits upon individual acheivement, thus is universal title.
 
-View these short slidedecks to see sample proposals on how to get from here to there: [TRANSITION](https://www.dropbox.com/s/e5saemk5ean6q4l/TRANSITION.pptx?dl=0) & [TRANSITION II: Earthsharing](https://www.dropbox.com/s/x7fguox3i251sku/TRANSITION_II.pptx?dl=0).
+View these short slidedecks to see sample proposals on how to move the world from here to there: [TRANSITION](https://www.dropbox.com/s/e5saemk5ean6q4l/TRANSITION.pptx?dl=0) & [TRANSITION II: Earthsharing](https://www.dropbox.com/s/x7fguox3i251sku/TRANSITION_II.pptx?dl=0).
