@@ -15,7 +15,7 @@ With such an establishment people always have a fallback position in any employm
 
 This new universal human right, preexisting to government, becomes the basis for the justification of the defense of government.
 
-Having invoked Locke's [Social Contract](https://github.com/kuttaineh/unknotted#how-shall-the-social-contract-be-defined) theory along with Henry George and perhaps a bit of Hobbes & Rousseau I'm having to note that this is out of the American, not French, model of revolutionary thinking.
+This [Social Contract](https://github.com/kuttaineh/unknotted#how-shall-the-social-contract-be-defined) comes out of [The Outline of Sanity](https://archive.org/details/theoutlineofsanity) and Henry George. It's out of the British Analytic tradition and American Revolutionary thinking.
 
 Unencumbered small landholding, or the value thereof if you want to get technical, is the right defined for the purpose not to establish a world based upon the works of Murray Rothbard ——— for that would result in a rentier's paradise ——— but rather Thom Jefferson's idea of the small landholder being the most precious part of the state and the greatest defense of liberty. And in this scenario of [Ward Republics](https://web.archive.org/web/20230331120509/https://constitution.org/1-Activism/reform/us/ward_republic.html) therein is practiced universal suffrage along with universal title.
 
