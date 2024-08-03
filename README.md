@@ -11,7 +11,7 @@ Let’s make our societies civil again. In proposal, in order to witness this en
 
 Drawing by Chesterton before 1936. For essays in this area, see [The Hound of Distributism](https://www.chesterton.org/store/product/hound-of-distributism/).
 
-With such an establishment people always have a fallback position in any employment negotiation because, if an employer isn't willing or is otherwise unable to make a sufficient return for labor then the person could always claim their share of the earth in physical form and take up vertical farming. Nothing would prevent the same from keeping both a garden and working jobs if this were their choice. How to live is left to the individual to determine.
+With such folk always have a fallback position in any employment negotiation. If an employer is unable to make a sufficient return for labor then a person could  claim their share of the earth in physical form and take up vertical farming. Nothing would prevent the same from keeping both a garden and working jobs if this were their choice. It's left to the individual to determine.
 
 This new universal human right, preexisting to government, becomes the basis for the justification of the defense of government.
 
