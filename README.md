@@ -1,7 +1,7 @@
 # Universal Title
 the basis of isocracy
 
-## Make our societies civil again. 
+## Let's make our societies civil again. 
 To witness this end, we divide the unimproved value of the earth equally across all conceived living beings.
 
 ## Predistribution as Right
