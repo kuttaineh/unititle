@@ -1,8 +1,8 @@
 # Universal Title
 the basis of isocracy
 
-## Motivation
-Let’s make our societies civil again. In proposal, in order to witness this end, we divide the value of the earth equally across all conceived living beings.
+## Make our societies civil again. 
+In proposal, in order to witness this end, we divide the value of the earth equally across all conceived living beings.
 
 ## Predistribution as Right
 [These figures derived](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) came from the whole landmass of the earth divided by the three example population sizes. This proposal eliminates homelessness coming out of a lack of an explicit title. Note the right, as expressed, is Predistributionist in form.
