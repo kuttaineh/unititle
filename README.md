@@ -1,3 +1,5 @@
+> “But it is not too soon to provide by every possible means that as few as possible shall be without a little portion of land. The small landholders are the most precious part of a state.” —Thomas Jefferson, [28 October 1785 Letter to James Madison](https://founders.archives.gov/documents/Jefferson/01-08-02-0534)
+
 ## Let's make our societies civil again. 
 To witness this end, we divide the unimproved value of the earth equally across all conceived living beings.
 
