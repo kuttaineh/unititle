@@ -1,7 +1,7 @@
 > “But it is not too soon to provide by every possible means that as few as possible shall be without a little portion of land.” —Thomas Jefferson, [28 October 1785 letter to James Madison, Sr.](https://founders.archives.gov/documents/Jefferson/01-08-02-0534)
 
 ## Let's make our societies civil again. 
-To witness this end, we divide the unimproved value of any territory equally across all living being there in residence.
+To witness this end, we divide the unimproved value of any territory equally across all living beings there in residence.
 
 ## Predistribution as Right
 [These figures derived](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) come from the whole landmass of the earth divided by three population sizes. Predistribution as a right eliminates homelessness coming out of the lack of an explicit title.
