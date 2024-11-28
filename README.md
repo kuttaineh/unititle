@@ -4,7 +4,7 @@
 To witness this end, we divide the unimproved value of any territory equally across all living beings there in residence.
 
 ## Predistribution as Right
-[These figures derived](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) come from the whole landmass of the earth divided by three population sizes. Predistribution as a right eliminates homelessness coming out of the lack of an explicit title.
+[These figures derived](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4) come from the whole landmass of the earth divided by three population sizes. Predistribution as a right eliminates the insecurities stemming from the lack of specific titles to land.
 
 | To establish a fallback position in any land dispute or employment negotiation: | a synthesis.                                 |
 | :---                                                                   | :---                                                 |
